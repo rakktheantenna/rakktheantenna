@@ -1,4 +1,4 @@
-![Rakku Raul Welcome](https://user-images.githubusercontent.com/60285585/143435534-70c052fe-3cf4-40dc-a4fe-3789dc4aaebc.png)
+![Heart Of Rakku](https://user-images.githubusercontent.com/60285585/147247439-50337bb0-1f82-49ef-8cb1-a1922ac480bc.png)
 
 Welcome to my GitHub profile which is [@rakktheantenna](https://github.com/rakktheantenna). I am a boy named Rakku Raul, can be called Rakk or Tenna. Lives in the United States, to be precise in New York. I can only speak English and Arabic.
 
